@@ -1,1 +1,2 @@
 # AndrewTetzeliBlog
+More to follow.
